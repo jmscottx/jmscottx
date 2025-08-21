@@ -1,4 +1,4 @@
-## Hi there 👋
+## Welcome to my profile! 👋
 
 - I am currently a student at Lane Tech College Prep High School.
 - I love to run and exercise!
